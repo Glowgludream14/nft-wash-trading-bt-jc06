@@ -1,4 +1,4 @@
-# 
+# new bot sniper NFT executor é o melhor bot sniper NFT executor com arbitragem multi-mercado e sniper de NFT. Seguro, confiável e otimizado para estratégias de sniper, negociação e
 
 
 
